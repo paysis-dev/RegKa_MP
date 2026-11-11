@@ -1,2 +1,2 @@
 # RegKa_MP
-Nur kurzfristig verfügbar
+Check it out!
